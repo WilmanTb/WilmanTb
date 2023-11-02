@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **rizki02tebe@gmail.com**
 
-- 📄 Know about my experiences https://drive.google.com/file/d/13MFcANc6R8MakVB7t-pImgdNXdKEriLJ/view?usp=sharing
+- 📄 Know about my experiences [https://drive.google.com/file/d/13MFcANc6R8MakVB7t-pImgdNXdKEriLJ/view?usp=sharing](https://drive.google.com/file/d/19EK3Ynlhb0_nitmPwFzFNghzHBBs5TO7/view?usp=sharing)
 
 - ⚡ Fun fact **I am always curious about new knowledge and always want to try it**
 
